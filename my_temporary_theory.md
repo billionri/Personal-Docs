@@ -3,7 +3,7 @@
 
 This was always a danger sign
 
-Missed communications and I don't bitches and been silent and lonely and less graph impacted sins for and red disease and motki graphs and money victory reason: ethics
+Missed communications and I don't bitches and been silent, fatherly money and lonely and less graph impacted sins for and red disease and motki graphs and money victory reason: ethics
 
 Weakness: write, 
 
