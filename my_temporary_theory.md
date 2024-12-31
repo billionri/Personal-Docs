@@ -15,6 +15,7 @@ Eye: dakus display the threats, and warn,
 
 Actions: doing own business and 
 Sins: M ur God
+Punish: hrtik fun, qualities feeding, 
 
 My Fight: Direct impact, 
 
