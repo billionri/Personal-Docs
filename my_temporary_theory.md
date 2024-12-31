@@ -3,7 +3,7 @@
 
 This was always a danger sign
 
-Missed communications and I don't bitches and been silent and lonely and less graph impacted sins for and red disease and motki graphs
+Missed communications and I don't bitches and been silent and lonely and less graph impacted sins for and red disease and motki graphs and money victory reason: ethics
 
 Weakness: write, 
 
@@ -16,7 +16,7 @@ Eye: dakus display the threats, and warn,
 Actions: doing own business and 
 Sins: M ur God
 
-My Fight: Direct impact
+My Fight: Direct impact, 
 
 Feel: direct cbi impact
 
@@ -27,3 +27,4 @@ Knowledge: i need feeder,
 People: sentiments,
 
 Weapon: injustice pause poison, 
+
